@@ -1,2 +1,2 @@
 # JETPACKCOMPOSE
-![Image](https://github.com/user-attachments/assets/4e096913-10be-459d-bdd5-841172b8fd62)
+![Image](https://github.com/user-attachments/assets/72e694e2-267d-4512-9fb2-b3a4d4190ac4)
